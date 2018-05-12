@@ -1,3 +1,3 @@
-pls dont judge me lol this is my new hobbycd D
+pls dont judge me lol this is my new hobby
 
-pidddgy.github.io/badwebsite
+https://pidddgy.github.io/badwebsite
